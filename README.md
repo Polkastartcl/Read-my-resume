@@ -1,0 +1,6 @@
+# Read-my-resume
+👋 Hi, I’m @Polkastartcl
+👀 I’m interested in ⭐ NFT Collector ⭐丨🐳 Money Maker 🐳
+🌱 I’m currently learning ...
+💞️ I’m looking to collaborate on NFT project ...
+📫 How to reach me polkastartcl@gmail.com
